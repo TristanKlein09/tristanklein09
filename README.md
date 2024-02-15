@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @hacrmtrx1
+- 👀 I’m interested in computers, programming and cyber security
+- 🌱 I’m currently learning Python
+- 💞️ I’m looking to collaborate on whatever looks interesting 
+- 📫 How to reach me: Discord - @hacrmtrx
+- 😄 Pronouns: please dont im a man 
+- ⚡ Fun fact: I love the watchdogs games
